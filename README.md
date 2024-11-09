@@ -1,5 +1,5 @@
 ## 🌈Hello! 
-☁  I’m @iskaiya
+☁  I’m Cielo ☁
 -  💐 My Pronouns are: she/her
 -  👀 I’m interested in Data Science 📊
 -  🌱 I’m currently learning Python for Data ^^
